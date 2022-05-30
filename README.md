@@ -1,6 +1,6 @@
 🔥 Auto Report Instagram 2022 ( STRONG BOT ) 🔥 
  <br>      
-╭━━╴♻️ Upgrade 12.05.2022
+╭━━╴♻️ Upgrade 30.05.2022
  <br>  
 ├  All users accounts is Upgrade + Proxy.
  <br>  
